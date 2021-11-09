@@ -1,1 +1,1 @@
-[Link to my Portfolio](slivercraft.foliohd.com)
+[Link to my Portfolio](www.slivercraft.foliohd.com)
